@@ -19,3 +19,8 @@ L'innovation, c'est une situation qu'on choisit parce qu'on a une passion brûla
 
 citation 4 
 Souvent, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous le leur montriez.
+
+
+
+citation 5
+En moins d'une semaine, nous sommes devenus le plus grand distributeur de musique du monde.
