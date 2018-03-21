@@ -8,7 +8,7 @@ Tout le reste est secondaire
 
 
 citation 2
- Etre l'homme le plus riche du cimetière ne m'intéresse pas. Aller me coucher le soir en me disant que j'ai des choses extraordinaire aujourd'hui, voilà ce qui compte.
+Etre l'homme le plus riche du cimetière ne m'intéresse pas. Aller me coucher le soir en me disant que j'ai des choses extraordinaire aujourd'hui, voilà ce qui compte.
 
 
 
