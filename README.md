@@ -5,3 +5,7 @@ Sortez les dogmes qui vous gardent prisonnier et qui vous obligent à obéir à 
 Ne laissez pas le brouhaha extérieur étouffer votre voix intérieur. Osez suivre votre coeur et votre intuition. 
 L'un et l'autre savent ce que vous savent ce que vous voulez réellement devenir.
 Tout le reste est secondaire  
+
+
+citation 2
+ Etre l'homme le plus riche du cimetière ne m'intéresse pas. Aller me coucher le soir en me disant que j'ai des choses extraordinaire aujourd'hui, voilà ce qui compte.
