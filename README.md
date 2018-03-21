@@ -9,3 +9,8 @@ Tout le reste est secondaire
 
 citation 2
  Etre l'homme le plus riche du cimetière ne m'intéresse pas. Aller me coucher le soir en me disant que j'ai des choses extraordinaire aujourd'hui, voilà ce qui compte.
+
+
+
+citation 3 
+L'innovation, c'est une situation qu'on choisit parce qu'on a une passion brûlante pour quelque chose.
