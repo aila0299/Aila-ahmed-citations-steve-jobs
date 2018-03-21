@@ -14,3 +14,8 @@ citation 2
 
 citation 3 
 L'innovation, c'est une situation qu'on choisit parce qu'on a une passion brûlante pour quelque chose.
+
+
+
+citation 4 
+Souvent, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous le leur montriez.
